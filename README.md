@@ -12,4 +12,4 @@ millene.marques.silva@escola.pr.gov.br
 
 @millenebeatriz
 
-![](https://tenor.com/pt-BR/view/love-you-gif-23161512)
+![](https://tenor.com/pt-BR/view/welcome-greetings-hello-waving-penguin-gif-12289136)
